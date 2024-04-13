@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI/ML projects/products
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on open-source projects.
-- 📫 How to reach: PM me here or @seanstarse on Ins 
+- 📫 How to reach: Ping me here or @seanstarse on Ins 
 - 😄 Pronouns: He/His/Him
 - ⚡ Fun fact: happily married and have two furry kids.
 
